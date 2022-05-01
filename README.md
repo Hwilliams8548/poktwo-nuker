@@ -1,2 +1,2 @@
 # poktwo-nuker
-THE DANKEST MEMER SHIT
+nuke dat shit
